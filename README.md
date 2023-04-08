@@ -1,4 +1,4 @@
-[![MasterHead](https://i.e-z.host/n2qqu9s6.gif)](https://khushboogoel01.github.io)
+[![MasterHead](https://media.discordapp.net/attachments/1054575510761508946/1094114456797200425/grom2.gif)](https://khushboogoel01.github.io)
 <h1 align="center">Ax on top</h1>
 <h3 align="center">6666666</h3>
 
